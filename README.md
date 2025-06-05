@@ -1,14 +1,14 @@
 ## Own GIT
 
-![Screenshot 2024-10-29 at 22 52 13](https://github.com/user-attachments/assets/beff0957-0167-453e-b457-238ef5216ede)
+![Screenshot 2025-06-05 at 07 47 30](https://github.com/user-attachments/assets/6b49e565-4a68-4f71-929b-1ee7ef747eb8)
 
 
--
+<img width="971" alt="Screenshot 2025-06-05 at 08 29 26" src="https://github.com/user-attachments/assets/b623be42-c246-44ac-ba99-d7fbc2d81fab" />
 
 
+<img width="717" alt="Screenshot 2025-06-05 at 08 30 24" src="https://github.com/user-attachments/assets/d40cc287-0810-4b5a-b6e7-f4b709d8d684" />
 
 
-![Screenshot 2024-10-29 at 22 45 09](https://github.com/user-attachments/assets/70694d22-46de-4fe3-ad4b-7b51b9be1498)
 
 
 
